@@ -1,4 +1,4 @@
--- SMALL BUT STRONG \n
+-- SMALL BUT STRONG  
 -- LEARNING & LEARNING
 
 <strong>RYOO</strong>
